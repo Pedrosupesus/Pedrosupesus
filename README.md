@@ -1,12 +1,12 @@
 ## Minha Bio ( ͡° ͜ʖ ͡°)( ͡° ͜ʖ ͡°)( ͡° ͜ʖ ͡°)
--taurino com assençao em gemeos
--homem pra mim so lutando na guerra
--ele/dele mas as vezes elu/delu
--hetero flex igual gasolina
--comida favorita: strogonoff de carne mas as vezes de frango (sem cugumelo plmds)
--catolico apostolico romano praticante, amem)
--medicina(-_-)
--tenho sifilis
+## -taurino com assençao em gemeos
+## -homem pra mim so lutando na guerra
+## -ele/dele mas as vezes elu/delu
+## -hetero flex igual gasolina
+## -comida favorita: strogonoff de carne mas as vezes de frango (sem cugumelo plmds)
+## -catolico apostolico romano praticante, amem)
+## -medicina(-_-)
+## -tenho sifilis
 ## 👋 Hi, I’m @Pedrosupesus ###
 - 👀 I’m interested in tatu jbl
 - 🌱 I’m currently learning remix de tatu
